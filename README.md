@@ -18,7 +18,7 @@
 ### 📖 品牌介绍
 * **官方名称：** 吹雪云
 * **官网：** [吹雪云 - Register](https://xn--9kqs1lo79d.com/#/register?code=UDmEyuOL)
-* **我的邀请码：** [https://xn--9kqs1lo79d.com/#/register?code=UDmEyuOL](https://xn--9kqs1lo79d.com/#/register?code=UDmEyuOL)
+* **我的邀请码：** [https://bit.ly/4ePAYQw](https://bit.ly/4ePAYQw)
 * **行业地位：** **非常便宜的直连机场**，节点**基本全 AWS**，速度不错，日常使用很顺畅。同样是直连线路，**价格压得很低，性价比突出**。晚高峰表现不如专线，但**轻度使用、预算有限**的话很划算。
 * **博客评测：** [{直连} 吹雪云 低价直连机场](https://travisblog.qzz.io/article/chuixueyun-review)
 
